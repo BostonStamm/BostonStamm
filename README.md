@@ -12,4 +12,4 @@
     
 ### How to reach me:
   - bostonstamm@gmail.com
-  - instagram @stammboston
+  - Instagram @stammboston
