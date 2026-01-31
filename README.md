@@ -11,5 +11,5 @@
   - C#
     
 ### How to reach me:
-  - bostonstamm@gmail.com
+  - bostonstamm@outlook.com
   - Instagram @stammboston
